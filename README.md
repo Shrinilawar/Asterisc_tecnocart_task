@@ -1,1 +1,0 @@
-# Asterisc_tecnocart_task
